@@ -28,7 +28,7 @@ Most of the new online poker business startup can not have idea about deposit an
 **4)-Extensive Support**
 This is very important to boost your customer experience by giving them instant solution for there issues. This team is awesome into this.
 
-If you are planning to buy poker software this Pokerscript Company is the right choice. Their software has full list of features that will help your business to run like a breeze. Features that makes them different are;
+If you are planning to buy poker software this <a href="https://www.pokerscript.net/">Pokerscript Company</a> is the right choice. Their software has full list of features that will help your business to run like a breeze. Features that makes them different are;
 
 -Club Manager
 
