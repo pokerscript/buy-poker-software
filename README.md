@@ -2,7 +2,7 @@
 Getting the best online poker software is the basic requirement for an online poker business startup. Pokerscript is the certified vendor for poker software for sale.
 This Pokerscript Team has all the required product features and guidelines to run an international level poker business. There are lots of providers you can search on internet and do comparisons and I assure they are best.
 
-Why to choose **Pokerscript Company** to <a href="https://www.pokerscript.net/">buy poker software</a> ?
+Why to choose **Pokerscript Company** to <a href="[https://www.pokerscript.net/](https://www.pokerscript.net/buy-poker-software.html)">buy Poker Software</a>?
 
 -Software is RNG Certified.
 
